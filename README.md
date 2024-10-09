@@ -1,2 +1,1 @@
 Teste
-print("hello world")
