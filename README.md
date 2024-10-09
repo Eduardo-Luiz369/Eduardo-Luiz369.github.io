@@ -1,1 +1,2 @@
 Teste
+print("hello world")
