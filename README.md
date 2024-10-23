@@ -7,6 +7,8 @@
  - Estudante
 
 >![enter image description here](https://ae01.alicdn.com/kf/Sc09d00c9b6a7497e92a0ccdec3087a56G.png)
+
+  
 **Dilemas e filosofia**
 >Como não tenho ainda pretensões sobre o rumo desta página, começarei falando sobre temas dos quais me interesso, como o do título por exemplo;
 >Dilemas são a base da nossa vida, eu diria. Diversos filósofos tratam desta problemática, como Nietzsche, Kiekergaard, Jean Paul Sartre, Nelly e Kelly Rowland,etc....
